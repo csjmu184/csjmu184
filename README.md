@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Sandeep Kumar.
-- 👀 I’m interested to learn always new skill.
+- 👀 I’m always interested to learn new skills.
 - 💞️ I’m currently looking for Internship opportunities.
 - 📫 Connect Me on : <a href="https://www.linkedin.com/in/sandeep-kumar-75643619b" rel="nofollow">Linkedin</a>.
 - 👊 or Mail me on: csjmu184@gmail.com
